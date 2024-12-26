@@ -1,9 +1,20 @@
-me and my side hoe 👽👽
-![!!](https://files.catbox.moe/t5dnuh.jpeg)
-![!!](https://files.catbox.moe/081uth.jpeg)
-![!!](https://files.catbox.moe/kph4eo.jpeg)
-![!!](https://files.catbox.moe/ynlzwy.png)
-we look so good guys ( u have to agree )
-![!!](https://files.catbox.moe/1rj8zx.jpeg)
-![!!](https://files.catbox.moe/4zmlye.jpeg)
-MY DUMBASS MWSSED UP THE STATUS LYRICS
+<div align="center">
+  
+[ 
+
+　　‎
+  
+<p align="center">
+<img src="https://files.catbox.moe/mg2nyx.png" width="36%" height="36%"> 
+</p>
+
+
+<div id="header" align="center">
+
+
+♡ 　Kaveh and Ratio kinnie　;　**5**teen　　‎
+
+
+usually free to int　*or*　w/ my [bff](https://github.com/hitchikerb)　‎<3　‎c+h is fine!!
+
+[rentry](https://rentry.co/forkin)　[ata](https://Vivienne.atabook.org/)　[strawpage](https://Ratios-husband.straw.page/)
