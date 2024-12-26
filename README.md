@@ -12,9 +12,9 @@
 <div id="header" align="center">
 
 
-♡ 　Kaveh and Ratio kinnie　;　**5**teen　　‎
+⌗ 　Ka*veh* and Ra*tio* kinnie　;　**5**teen　　‎
 
 
-usually free to int　*or*　w/ my [bff](https://github.com/hitchikerb)　‎<3　‎c+h is fine!!
+usually free to interact, i dont bite !! *Sometimes* w/ my [bff](https://github.com/hitchikerb)　‎<3　‎c+h is fine!!
 
 [rentry](https://rentry.co/forkin)　[ata](https://Vivienne.atabook.org/)　[strawpage](https://Ratios-husband.straw.page/)
