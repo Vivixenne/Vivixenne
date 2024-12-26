@@ -12,10 +12,10 @@
 <div id="header" align="center">
 
 
-⌗ 　꒰ Ka*veh* and Ra*tio* kinnie ⊹ **5**teen  ꒱ 𓂅 Not in a relationship *currently* 𓍯
+⌗ 　꒰ 🏛️ Ka*veh* and 🍎 Ra*tio* kinnie ⊹ **5**teen  ꒱ 𓂅 Not in a relationship *currently* !!!𓍯
 ‎
 
 
-usually free to interact, i dont bite !! *Sometimes* w/ my [bff](https://github.com/hitchikerb)　‎<3　‎c+h is fine!!
-
-[rentry](https://rentry.co/forkin)　[ata](https://Vivienne.atabook.org/)　[strawpage](https://Ratios-husband.straw.page/)
+usually free to interact, just dont be akward heh.. *Sometimes* w/ my [bff](https://github.com/hitchikerb)　‎<3　‎c+h is fine!!
+                   
+⤷ [rentry](https://rentry.co/forkin)　[ata](https://Vivienne.atabook.org/)　[strawpage](https://Ratios-husband.straw.page/) ⤶
