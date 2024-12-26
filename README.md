@@ -16,7 +16,7 @@
 ‎
 
 
-usually free to interact, just dont be akward heh.. *Sometimes* w/ my [bff](https://github.com/hitchikerb)　‎<3　‎c+h is fine!!
+usually free to interact, just dont be akward heh.. *Sometimes* w/ my [Bestie](https://github.com/hitchhikerb)　‎<3　‎c+h is fine!!
                    
 ⤷ [rentry](https://rentry.co/forkin)　[ata](https://Vivienne.atabook.org/)　[strawpage](https://Ratios-husband.straw.page/) ⤶
 <div align="center">
