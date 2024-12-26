@@ -19,3 +19,8 @@
 usually free to interact, just dont be akward heh.. *Sometimes* w/ my [bff](https://github.com/hitchikerb)　‎<3　‎c+h is fine!!
                    
 ⤷ [rentry](https://rentry.co/forkin)　[ata](https://Vivienne.atabook.org/)　[strawpage](https://Ratios-husband.straw.page/) ⤶
+<div align="center">
+
+<img src="https://files.catbox.moe/4w3mhq.png" width="36%" height="36%">
+
+(SIDENOTE I NEED A ALHSITHSM TO MY KAVEH🤑🤑😍 meand vro fr..😛😛) /hj
