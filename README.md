@@ -12,7 +12,8 @@
 <div id="header" align="center">
 
 
-⌗ 　Ka*veh* and Ra*tio* kinnie　;　**5**teen　　‎
+⌗ 　꒰ Ka*veh* and Ra*tio* kinnie ⊹ **5**teen  ꒱ 𓂅 Not in a relationship *currently* 𓍯
+‎
 
 
 usually free to interact, i dont bite !! *Sometimes* w/ my [bff](https://github.com/hitchikerb)　‎<3　‎c+h is fine!!
